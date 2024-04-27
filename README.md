@@ -1,1 +1,1 @@
-# ineuron_Manav_Somani
+# iNeuron_Manav_Somani
